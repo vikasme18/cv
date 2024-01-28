@@ -1,2 +1,2 @@
 # cv
-My first cv : https://vikasrx.github.io/cv/
+My first cv : https://vikasme18.github.io/cv/
